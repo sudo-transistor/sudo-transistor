@@ -2,7 +2,7 @@
 - 👀 I’m interested in coding (obv) and crocheting.
 - 🌱 I’m currently learning C++, and Java
 - 💞️ I’m looking to collaborate on any project a collab sounds fun! 
-- 📫 How to reach me: Post on my page
+- 📫 How to reach me: no socials srry
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: i tought myself how to code
 
